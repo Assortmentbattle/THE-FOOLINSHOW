@@ -1,4 +1,5 @@
- 
- 
 
-![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/c701c24b-5076-4c4c-8dff-b08d5e83a738)
+>  Read rentry!
+
+
+![ezgif com-animated-gif-maker (1)](https://github.com/user-attachments/assets/1fba0d60-a551-4eb5-ac9e-51241b31f49b)
